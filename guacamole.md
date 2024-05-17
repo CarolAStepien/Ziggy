@@ -4,12 +4,17 @@ Ingredients
 2 
 avocados
 - 
+sweet onion
+-
 1 
 lime
 - 
-2 
+1 
 tsp 
 salt
+-
+jalapeno 
+-
 
 Instructions
 :
